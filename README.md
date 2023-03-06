@@ -1,3 +1,3 @@
-﻿https://mazank.github.io/zankevichQA/cv
+﻿https://mazank.github.io/zankevichQA/
 
 
